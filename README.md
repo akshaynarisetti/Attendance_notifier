@@ -12,4 +12,4 @@ Step 3)Verify your phone number
 
 
 
-Please dont use this tool to spam and you alone are responisbile for your actions using this tool
+Please dont use this tool to spam and you alone are responsible for your actions using this tool
